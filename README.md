@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jasonsmith420
+- 👀 I’m interested in learning python,ml and everything at all
+- 🌱 I’m currently learning python and ml 
+- 💞️ if you have lesson to teach i'm all yours 
+- 📫 here is my email if you want to reach me (jasonsmith690069@gmail.com)
